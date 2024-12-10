@@ -1,4 +1,4 @@
-Hi, I'm Zakaria JAABARI, a financial analyst at a leading petroleum company. I have a deep passion for finance and technology, especially in areas that intersect with trading and data science.
+Hi, I'm Zouhir JAABARI, a financial analyst at a leading petroleum company. I have a deep passion for finance and technology, especially in areas that intersect with trading and data science.
 
 🔍 Main Interests:
 
